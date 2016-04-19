@@ -8,6 +8,7 @@ Kiwifruit is the biggest commercially grown horticultural crop in New Zealand.
 ##Aim of the research 
 Aim of the research is to understand what regulates the green/yellow colour in kiwifruit
 ##Proposed research
+We work together to get stuff done :)
 ##References
 
 
